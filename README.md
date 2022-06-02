@@ -1,0 +1,1 @@
+# NIA_2022_AI_for_highschoolstudent
